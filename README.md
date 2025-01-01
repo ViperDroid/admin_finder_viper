@@ -8,8 +8,9 @@ dont touch the code , if you wanna touching the code , after you having any erro
 
 
 ## 🚀 Features
--- Biggest tool to finding Admin page
+-- Biggest tool for finding Admin page
 
+https://www.pornhub.com//admin_area_live/login
 
 
 
